@@ -5,7 +5,7 @@ Download: https://drive.google.com/uc?id=1ceceiaXZd99DGKCbP246nbThJ8al1xHX&expor
 
  
 
-Silent Hill 3[a] is a survival horror video game developed by Team Silent, a production group within Konami Computer Entertainment Tokyo, and published by Konami for the PlayStation 2. The third instalment in the Silent Hill series and a direct sequel to the first Silent Hill game, it follows Heather, a teenager who becomes entangled in the machinations of the town's cult, which seeks to revive a malevolent deity. It was released in May 2003, with a port to Microsoft Windows released in October of the same year. A remastered high-definition version was released as part of the Silent Hill HD Collection (2012), for the PlayStation 3 and Xbox 360.
+Silent Hill 3 is a survival horror video game developed by Team Silent, a production group within Konami Computer Entertainment Tokyo, and published by Konami for the PlayStation 2. The third instalment in the Silent Hill series and a direct sequel to the first Silent Hill game, it follows Heather, a teenager who becomes entangled in the machinations of the town's cult, which seeks to revive a malevolent deity. It was released in May 2003, with a port to Microsoft Windows released in October of the same year. A remastered high-definition version was released as part of the Silent Hill HD Collection (2012), for the PlayStation 3 and Xbox 360.
 
  
 
